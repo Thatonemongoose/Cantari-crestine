@@ -1,2 +1,2 @@
-# C-nt-ri-cre-tine
+# Cantari-crestine
 Depozit general pentru cântări creștine
